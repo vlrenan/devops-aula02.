@@ -1,3 +1,0 @@
-#Bruna
-#Carol
-#Priscila 
